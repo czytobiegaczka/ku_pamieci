@@ -1,0 +1,1 @@
+# mooje repo z kawalkami kodu
